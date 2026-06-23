@@ -1,0 +1,2 @@
+# Study-
+IA para estudos
